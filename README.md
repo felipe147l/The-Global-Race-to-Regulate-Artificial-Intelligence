@@ -5,12 +5,19 @@ Objetivos,criar um segundo cérebro baseado em atualizações sobre tecnologia d
 Fonte de vídeos:
 
 https://youtu.be/iPLm79BEm3k?si=KFUJCnJMrtMNEnBR
+
 https://youtu.be/209J--nIAjI?si=mhYUrQ_V1rkjiOev
+
 https://youtu.be/FmJFozdSAYc?si=ypXZzM-6plqdDn5c
+
 https://youtu.be/H8QOb8oAG1g?si=Gn9y53TdsScrkuVF
+
 https://youtu.be/0rmJoI7do2o?si=HFlFBAZAYgaMQtgv
+
 https://youtu.be/mY3gCvC6YQ8?si=AMZjGR9r3rx6AS3M
+
 https://youtu.be/T7eak9hogNs?si=NXfPvIRC0A_QCSYj
+
 https://youtu.be/mANFN1ozv8E?si=mN-V_7xt3o3bgiSP
 
 
