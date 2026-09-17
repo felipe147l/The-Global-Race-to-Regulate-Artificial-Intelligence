@@ -1,4 +1,4 @@
-# The-Global-Race-to-Regulate-Artificial-Intelligence
+# Projeto Notebook LM
 Projeto criado pelo Notebook LM sobre Tecnologia, inteligência Artificial, e tendências para os próximos anos
 Objetivos,criar um segundo cérebro baseado em atualizações sobre tecnologia da informação e inteligência artificial.
 
