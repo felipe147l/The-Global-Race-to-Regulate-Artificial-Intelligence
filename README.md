@@ -24,7 +24,11 @@ https://youtu.be/mANFN1ozv8E?si=mN-V_7xt3o3bgiSP
 Fonte de texto:
 
 https://www.infomoney.com.br/tudo-sobre/inteligencia-artificial/
+
 https://www.infomoney.com.br/mercados/ia-da-openai-testou-vulnerabilidades-da-hugging-face-meses-antes-de-ataque/
+
 https://www.infomoney.com.br/business/cofundador-do-google-deepmind-diz-que-ia-nao-pode-ultrapassar-controle-de-seguranca/
+
 https://www.infomoney.com.br/business/openai-testa-agentes-patrocinados-por-empresas-e-amplia-usos-de-ia-para-anuncios/
+
 https://www.infomoney.com.br/business/huawei-preve-que-agentes-autonomos-dominarao-90-do-trafego-de-ia-ate-2035/
